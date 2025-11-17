@@ -1,0 +1,2 @@
+# Moje-str-nky-.
+Kuchařka 
